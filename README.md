@@ -1,0 +1,1 @@
+# News_presenter_avatar
